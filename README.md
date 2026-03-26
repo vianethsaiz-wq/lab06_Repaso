@@ -1,1 +1,1 @@
-# lab06_Repaso
+# Repaso mundo cruel por que el profesor no nos quiso exentar
